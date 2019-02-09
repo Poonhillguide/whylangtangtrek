@@ -1,5 +1,5 @@
 # whylangtangtrek
-<a href="www.poonhillguide.com/langtang-trek/langtang-valley-trek">Langtang valley trekking</a> is very famous to explore Red Panda an endangered animal of Nepal located north of Kathmandu city. Langtang National Park is inhabitants of several wild lives such as Musk deer, Himalayan black bear, snow leopard, Himalayan wild goat and particularly birds and wildflowers.
+Langtang valley trekking is very famous to explore Red Panda an endangered animal of Nepal located north of Kathmandu city. Langtang National Park is inhabitants of several wild lives such as Musk deer, Himalayan black bear, snow leopard, Himalayan wild goat and particularly birds and wildflowers.
 
 As you trek in langtang region in springtime, the complete valley is covered with a diversity of alpine flowers, orchids, magnolia and many other floral species. Trek to Langtang valley in spring, the forests turned to multi-colored with colorful rhododendron. Wheat, potato, soya bean, maize, and millet are the main foods that they produce in this areas.
 
